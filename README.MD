@@ -1,1 +1,1 @@
-Estos van a ser los apuntes de la clase del maestro Ubaldo.
+Estos van a ser los apuntes de la clase del maestro Ubaldo.o
